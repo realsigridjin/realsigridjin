@@ -1,1 +1,1 @@
-![banner](./banner.png)
+contact me - hisigrid@student.ubc.ca
