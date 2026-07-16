@@ -1,1 +1,1 @@
-contact me - hisigrid@student.ubc.ca
+profile - https://sigridjin.ca
